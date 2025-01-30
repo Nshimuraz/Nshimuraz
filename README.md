@@ -1,4 +1,5 @@
-## Hi there 👋
+
+![ezgif-754eccda7b775](https://github.com/user-attachments/assets/2c881b4f-d421-4148-812b-2445d3542977)
 
 <!--
 **Nshimuraz/Nshimuraz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

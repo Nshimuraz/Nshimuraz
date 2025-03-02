@@ -1,18 +1,26 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=c51b1b&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&redirect=true)
                                   
 
-                                  ᴍᴏᴏɴꜱᴛʀᴜᴄᴋ | ᴇɴʜʏᴘᴇɴ   
-                                 0:24 ─●──────── -2:56
-                                  ⇄ ◃◃   ⅠⅠ   ▹▹ ↻ 
+                                          ʜᴀʀᴠᴇʏ | ᴀʟᴇx ɢ   
+                                       0:24 ─●──────── -2:56
+                                        ⇄ ◃◃   ⅠⅠ   ▹▹ ↻ 
 
-                                  달빛 아래 ʏᴏᴜ ᴀɴᴅ ɪ,
-                                태양은 ʙᴇʜɪɴᴅ ᴛʜᴇ ɴɪɢʜᴛ.
-                                   영원이 될 오늘 밤,
-                          춤을 추며 취해가지 ᴀʟʟ ɴɪɢʜᴛ ʟᴏɴɢ, ᴏʜ.
+                                  ɪ ʟᴏᴠᴇ ᴡɪɴɴɪɴɢ ʙᴀʙʏ ɪ ᴡᴀɴᴛ ɪᴛ ᴀʟʟ
+                                 ɪ ᴡᴀɴɴᴀ ᴘʀᴏᴠᴇ ᴛʜᴀᴛ ɪ ɢᴏᴛ ᴛʜᴇ ʙᴀʟʟꜱ
+                               
 
-![ff05148da86ad17ff7d09ba7e411efec](https://github.com/user-attachments/assets/9e243a45-5479-4f3a-a6c4-d626047eae68)
+![ef0037fbe951ef9d75b93410ffb3b4a8](https://github.com/user-attachments/assets/5ca5c700-a9f7-478c-b5b9-a7aaea972cf6)
 
-                                  ᴊᴜꜱᴛ ᴛʜᴇ ᴛᴡᴏ ᴏꜰ ᴜꜱ,
-                                깊어져 가는 ᴍᴏᴏɴꜱᴛʀᴜᴄᴋ . 
-                           ᴏʜ, ʏᴏᴜ ᴍᴀᴋᴇ ᴍᴇ ɢᴏ ᴄʀᴀᴢʏ ᴏᴠᴇʀ ʏᴏᴜ,
-                                      ʏᴏᴜ, ʙᴀʙʏ.♡
+
+                               ʜᴀʀᴠᴇʏ ᴋᴇᴇᴘꜱ ᴏɴ ᴘʟᴀʏɪɴɢ ᴡɪᴛʜ ʜɪꜱ ꜰᴏᴏᴅ
+                                ʜᴇ ᴅᴏᴇꜱɴ'ᴛ ᴜɴᴅᴇʀꜱᴛᴀɴᴅ ᴡʜᴀᴛ ʙɪɢ ʙᴏʏꜱ 
+
+                              ʜᴇ ᴡᴀᴋᴇꜱ ᴜᴘ ɪɴ ᴛʜᴇ ᴍɪᴅᴅʟᴇ ᴏꜰ ᴛʜᴇ ɴɪɢʜᴛ
+                                  ɪ ʀᴜɴ ɪɴ ᴀɴᴅ ᴛᴜʀɴ ᴏɴ ᴛʜᴇ ʟɪɢʜᴛ
+
+![46662c9d050f5f08faf1bab1a98fc6ae](https://github.com/user-attachments/assets/5cb90cd2-dba6-4f42-b5f0-ad27b485a6bb)
+
+                              ʀᴜɴ ᴍʏ ʜᴀɴᴅꜱ ᴛʜʀᴏᴜɢʜ ʜɪꜱ ꜱʜᴏʀᴛ ʙʟᴀᴄᴋ ʜᴀɪʀ
+                                ɪ ʟᴏᴠᴇ ʏᴏᴜ ʜᴀʀᴠᴇʏ, ɪ ᴅᴏɴ'ᴛ ᴄᴀʀᴇ .
+                                            ˚ʚ♡ɞ˚
+

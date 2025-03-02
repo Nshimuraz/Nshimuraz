@@ -8,8 +8,8 @@
                                   ɪ ʟᴏᴠᴇ ᴡɪɴɴɪɴɢ ʙᴀʙʏ ɪ ᴡᴀɴᴛ ɪᴛ ᴀʟʟ
                                  ɪ ᴡᴀɴɴᴀ ᴘʀᴏᴠᴇ ᴛʜᴀᴛ ɪ ɢᴏᴛ ᴛʜᴇ ʙᴀʟʟꜱ
                                
+![idkio](https://github.com/user-attachments/assets/a12a5507-6676-4b7a-9b17-e584a0a79768)
 
-![ef0037fbe951ef9d75b93410ffb3b4a8](https://github.com/user-attachments/assets/5ca5c700-a9f7-478c-b5b9-a7aaea972cf6)
 
 
                                ʜᴀʀᴠᴇʏ ᴋᴇᴇᴘꜱ ᴏɴ ᴘʟᴀʏɪɴɢ ᴡɪᴛʜ ʜɪꜱ ꜰᴏᴏᴅ

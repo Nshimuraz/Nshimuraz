@@ -1,9 +1,9 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=c51b1b&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&redirect=true)
                                   
 
-                                          ʀᴇᴍɪɴᴅᴇʀ  | ᴛʜᴇ ᴡᴇᴇᴋɴᴅ  
-                                          0:24 ─●──────── -2:56
-                                            ⇄ ◃◃   ⅠⅠ   ▹▹ ↻ 
+                                       ʀᴇᴍɪɴᴅᴇʀ  | ᴛʜᴇ ᴡᴇᴇᴋɴᴅ  
+                                       0:24 ─●──────── -2:56
+                                         ⇄ ◃◃   ⅠⅠ   ▹▹ ↻ 
 
 
                             ᴘʟᴀᴛɪɴᴜᴍ ᴏꜰꜰ ᴀ ᴍɪxᴛᴀᴘᴇ, ꜱɪᴘᴘɪɴ' ᴏɴ ᴛʜᴀᴛ ᴄᴏᴅᴇɪɴᴇ

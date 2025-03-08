@@ -13,6 +13,8 @@
 
 ![004621e8b49f33c12c26d3eea2ba32bb](https://github.com/user-attachments/assets/c106d853-b3d8-41fa-93fc-e7ceee31ac8f)
 
+<img src="https://komarev.com/ghpvc/?username=Nshimuraz&label=&color=393939">
+
 
                               
 

@@ -3,21 +3,23 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=c51b1b&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&redirect=true)
                                       <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=Nshimuraz&label=&color=393939">
                                    
-   ʀᴇᴍɪɴᴅᴇʀ  | ᴛʜᴇ ᴡᴇᴇᴋɴᴅ  
+   ᴡᴜᴛɪᴡᴀɴᴛ  | ꜱᴀʀᴀᴜɴʜ0ʟʏ     
     0:24 ─●──────── -2:56
     
  ⇄ ◃◃   ⅠⅠ   ▹▹ ↻ 
 
        
-   ᴘʟᴀᴛɪɴᴜᴍ ᴏꜰꜰ ᴀ ᴍɪxᴛᴀᴘᴇ, ꜱɪᴘᴘɪɴ' ᴏɴ ᴛʜᴀᴛ ᴄᴏᴅᴇɪɴᴇ
+   ᴍᴏʀᴇ ᴀᴡᴀᴋᴇ ɪɴꜱɪᴅᴇ ᴏꜰ ᴍʏ ᴅʀᴇᴀᴍꜱ
  
- ᴘᴏᴜʀ ɪᴛ ɪɴ ᴍʏ ᴛʀᴏᴘʜɪᴇꜱ, ʀᴏʟʟɪɴ' 'ᴛɪʟ ᴍʏ ɴᴏꜱᴇ ʙʟᴇᴇᴅ
+ ᴡᴀꜱ ᴛʜᴀᴛ ʀᴇᴀʟʟʏ ʏᴏᴜ ɴᴇxᴛ ᴛᴏ ᴍᴇ?
 
-  ɪ'ᴍᴀ ᴋᴇᴇᴘ ᴏɴ ꜱɪɴɢɪɴ' ᴡʜɪʟᴇ ɪ'ᴍ ʙᴜʀɴɪɴ' ᴜᴘ ᴛʜᴀᴛ ᴏɢ                           
+  ɢɪᴠᴇ ᴍᴇ ᴡʜᴀᴛ ɪ ᴡᴀɴᴛ, 
 
-   
+ᴡʜᴏ ᴀᴍ ɪ ꜱᴜᴘᴘᴏꜱᴇᴅ ᴛᴏ ᴘʟᴇᴀꜱᴇ?                           
 
-![004621e8b49f33c12c26d3eea2ba32bb](https://github.com/user-attachments/assets/c106d853-b3d8-41fa-93fc-e7ceee31ac8f)
+   ![487331732_1721952908709339_1089077147863548077_n (1)](https://github.com/user-attachments/assets/eb9f7d4c-0d2f-4411-8538-f395204e94b5)
+
+
 
 
 

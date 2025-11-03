@@ -18,8 +18,8 @@
 
 ᴛʜᴇʀᴇ ᴡɪʟʟ ʙᴇ ɴᴏ ᴀɴꜱᴡᴇʀ.                           
 
-![5016ee5073bfab9d586ba124af20569a](https://github.com/user-attachments/assets/b7d3e0d2-8d88-45f4-9c56-450ed2be320a)
 
+![ezgif-3bce940e87c17e](https://github.com/user-attachments/assets/add298cf-c0eb-48f9-ba9b-677936ebf5c2)
 
 ʀᴀᴛʜᴇʀ ᴍᴇʟᴏᴅʀᴀᴍᴀᴛɪᴄ, ᴀʀᴇɴ'ᴛ ʏᴏᴜ?
 

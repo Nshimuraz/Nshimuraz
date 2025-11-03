@@ -19,7 +19,7 @@
 ᴛʜᴇʀᴇ ᴡɪʟʟ ʙᴇ ɴᴏ ᴀɴꜱᴡᴇʀ.                           
 
 
-![ezgif-3bce940e87c17e](https://github.com/user-attachments/assets/add298cf-c0eb-48f9-ba9b-677936ebf5c2)
+![01ce7bfa26f991ddd3770b228ec1ec42](https://github.com/user-attachments/assets/905e4fe9-a617-4085-92d4-f1f1bbc10446)
 
 ʀᴀᴛʜᴇʀ ᴍᴇʟᴏᴅʀᴀᴍᴀᴛɪᴄ, ᴀʀᴇɴ'ᴛ ʏᴏᴜ?
 

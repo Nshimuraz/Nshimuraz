@@ -3,25 +3,25 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=c51b1b&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&redirect=true)
                                       <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=Nshimuraz&label=&color=393939">
                                    
-   ᴄɪɢᴀʀᴇᴛᴛᴇꜱ ᴏᴜᴛ ᴛʜᴇ ᴡɪɴᴅᴏᴡ  | ᴛᴠ ɢɪʀʟ     
+   Specter | Bad Omens.
     0:24 ─●──────── -2:56
     
  ⇄ ◃◃   ⅠⅠ   ▹▹ ↻ 
 
        
-   ᴡᴇ'ʟʟ ꜰɪɴᴅ ᴍᴏᴏɴʟɪɢʜᴛ ɴɪɢʜᴛꜱ,ꜱᴛʀᴀɴɢᴇʟʏ ᴇᴍᴘᴛʏ 
+   Something you're missing made who you were 
 
  
- ʙᴇᴄᴀᴜꜱᴇ
+ Cause I've kept my distance,
 
-  ᴡʜᴇɴ ʏᴏᴜ ᴄᴀʟʟ ᴍʏ ɴᴀᴍᴇ ᴛʜʀᴏᴜɢʜ ᴛʜᴇᴍ
+  It just made it worse. 
 
-ᴛʜᴇʀᴇ ᴡɪʟʟ ʙᴇ ɴᴏ ᴀɴꜱᴡᴇʀ.                           
+But I've learned to live                          
 
 
-![01ce7bfa26f991ddd3770b228ec1ec42](https://github.com/user-attachments/assets/905e4fe9-a617-4085-92d4-f1f1bbc10446)
+![1648f9a18ed43d17d7ca75315282870a](https://github.com/user-attachments/assets/a4b85df1-3fbb-420c-aa80-74720f582119)
 
-ʀᴀᴛʜᴇʀ ᴍᴇʟᴏᴅʀᴀᴍᴀᴛɪᴄ, ᴀʀᴇɴ'ᴛ ʏᴏᴜ?
+With the way that it hurts . 
 
 
 

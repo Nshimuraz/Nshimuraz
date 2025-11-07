@@ -4,6 +4,7 @@
                                       <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=Nshimuraz&label=&color=393939">
                                    
    Specter | Bad Omens.
+   
     0:24 ─●──────── -2:56
     
  ⇄ ◃◃   ⅠⅠ   ▹▹ ↻ 

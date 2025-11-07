@@ -12,7 +12,7 @@
        
    Something you're missing made who you were 
 
-dₒ yₒᵤ fₑₑₗ ₗₒᵥₑ, ₗₒᵥₑ ?
+dₒ yₒᵤ fₑₑₗ ₗₒᵥₑ ?
 
  
  Cause I've kept my distance,

@@ -1,4 +1,7 @@
 <h5 align="center">
+ᶠˡˡʷ ᵐʸ ⁱⁿˢᵗᵃ: 
+  
+  https://www.instagram.com/ominozuskutya/?hl=hu
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=c51b1b&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hqokoegajddtfezndvbdemnqpm&redirect=true)
                                       <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=Nshimuraz&label=&color=393939">

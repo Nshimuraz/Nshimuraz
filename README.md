@@ -13,7 +13,7 @@
  ⇄ ◃◃   ⅠⅠ   ▹▹ ↻ 
 
        
-   Something you're missing made who you were 
+   Something you're missing made you who you were 
 
 dₒ yₒᵤ fₑₑₗ ₗₒᵥₑ ?
 
